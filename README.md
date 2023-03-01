@@ -1,1 +1,0 @@
-# mirsatmurutoglu.github.io
